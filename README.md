@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **fadillasaniam@gmail.com**
 
-- 📄 Know about my experiences [Data Entry for Political Issue](Data Entry for Political Issue)
+- 📄 Know about my experiences [Data Entry for Political Issue]
 
 - ⚡ Fun fact **I have economics background!**
 
